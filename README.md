@@ -11,4 +11,3 @@ The primary objective is to gain a significant edge over fellow players. Activat
 
 Brookhaven, a top-tier Roblox game with robust defense mechanisms, has limited scripts and hacks. However, by employing IceHub, you can seamlessly access the game's concealed features without risking account suspension.
 
-IMG
